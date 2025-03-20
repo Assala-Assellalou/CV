@@ -37,19 +37,19 @@
  🔹[2020-2021] : Lycée scientifique Hassan, Rabat, Morocco   
                🔸**18,39/20 BAC Sciences Maths A : Maths, Physics, Chemistry, Biology (SVT), Philosophy, English**   
               
- 🔹[2019-2020] : Lycée scientifique Hassan, Rabat, Morocco   
+ 🔹[2019-2020] : Lycée scientifique Hassan, Rabat, Morocco     
                🔸**17,72/20 in the Regional Exam : French, Arabic, History, Geography**     
               
- 🔹[2018-2019] : Lycée scientifique Hassan, Rabat, Morocco 
+ 🔹[2018-2019] : Lycée scientifique Hassan, Rabat, Morocco   
                🔸**First year of high school**  
               
- 🔹[2017-2018] : Collège scientifique Hassan, Rabat, Morocco 
+ 🔹[2017-2018] : Collège scientifique Hassan, Rabat, Morocco   
                🔸**19,46/20 in the Regional Exam**    
               
- 🔹[2015-2017] : Collège scientifique Hassan, Rabat, Morocco 
+ 🔹[2015-2017] : Collège scientifique Hassan, Rabat, Morocco   
                🔸**1st and 2nd year of Middle school**    
               
- 🔹[Before-2015] : La Petite Clairière, Rabat, Morocco 
+ 🔹[Before-2015] : La Petite Clairière, Rabat, Morocco    
                🔸 **Primary school**  
  
 
