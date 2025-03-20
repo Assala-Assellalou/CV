@@ -1,4 +1,4 @@
-# CV
+Hello 👋, get to know more about me :   
 
 # Computer Science Tools   
  🔸MATLAB    
